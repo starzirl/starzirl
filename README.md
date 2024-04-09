@@ -1,7 +1,5 @@
 
-![affb2485f0ec5942325125856888ad0f](https://github.com/starzirl/starzirl/assets/151113072/14b4518f-9cf0-40e2-9054-34827ab8a462)
-
-## ![0debb812](https://github.com/starzirl/starzirl/assets/151113072/42f202b7-5c58-4585-ac54-76d24c224869)
+## ![affb2485f0ec5942325125856888ad0f](https://github.com/starzirl/starzirl/assets/151113072/14b4518f-9cf0-40e2-9054-34827ab8a462)
 
 
 ### . . . . status ![47e44551](https://github.com/starzirl/starzirl/assets/151113072/bf0e513b-f8cd-4975-b14e-22997e7fc2ca)
@@ -18,7 +16,12 @@
  
  ![a5206706_original](https://github.com/starzirl/starzirl/assets/151113072/3a3661e0-151f-4c76-b049-e7e7095f49d2) **busy** .. *dniuf* . *dniuc*
 
- *i don't do roleplay* . ![03eaf3a8](https://github.com/starzirl/starzirl/assets/151113072/fadcd02e-ed51-4351-adda-f8eaf7af0bd8) 
+ ## *i don't do roleplay* . ![03eaf3a8](https://github.com/starzirl/starzirl/assets/151113072/fadcd02e-ed51-4351-adda-f8eaf7af0bd8) 
+
+
+![0debb812](https://github.com/starzirl/starzirl/assets/151113072/dca022e9-2154-4181-8eca-fd9a7acbdbb8)
+
+ 
 
 
 
