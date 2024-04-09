@@ -1,13 +1,18 @@
-### . . . . status ![e8a8727a_original](https://github.com/starzirl/starzirl/assets/151113072/735733ac-f501-446b-bff4-ad57e4234996)
+### . . . . status ![47e44551](https://github.com/starzirl/starzirl/assets/151113072/bf0e513b-f8cd-4975-b14e-22997e7fc2ca)
 
 
-- **online** .. *don't use it*
-- **looking for chat** .. *don't use it*
-- **looking for roleplay** .. *don't use it*
-- **away** .. *int* . *iwc*
-- **busy** .. *dniuf* . *dniuc*
 
-  i don't do roleplay .
+![a5206706_original](https://github.com/starzirl/starzirl/assets/151113072/3a3661e0-151f-4c76-b049-e7e7095f49d2) **online** .. *don't use it*
+ 
+ ![a5206706_original](https://github.com/starzirl/starzirl/assets/151113072/3a3661e0-151f-4c76-b049-e7e7095f49d2) **looking for chat** .. *don't use it*
+ 
+ ![a5206706_original](https://github.com/starzirl/starzirl/assets/151113072/3a3661e0-151f-4c76-b049-e7e7095f49d2) **looking for roleplay** .. *don't use it*
+ 
+ ![a5206706_original](https://github.com/starzirl/starzirl/assets/151113072/3a3661e0-151f-4c76-b049-e7e7095f49d2) **away** .. *int* . *iwc*
+ 
+ ![a5206706_original](https://github.com/starzirl/starzirl/assets/151113072/3a3661e0-151f-4c76-b049-e7e7095f49d2) **busy** .. *dniuf* . *dniuc*
+
+ *i don't do roleplay* . ![03eaf3a8](https://github.com/starzirl/starzirl/assets/151113072/fadcd02e-ed51-4351-adda-f8eaf7af0bd8) 
 
 
 
