@@ -1,7 +1,7 @@
 
 ![affb2485f0ec5942325125856888ad0f](https://github.com/starzirl/starzirl/assets/151113072/14b4518f-9cf0-40e2-9054-34827ab8a462)
 
-## ![2d0095d0](https://github.com/starzirl/starzirl/assets/151113072/bb69f038-8312-4ce0-9aef-6486a4f353b7)
+## ![0debb812](https://github.com/starzirl/starzirl/assets/151113072/42f202b7-5c58-4585-ac54-76d24c224869)
 
 
 ### . . . . status ![47e44551](https://github.com/starzirl/starzirl/assets/151113072/bf0e513b-f8cd-4975-b14e-22997e7fc2ca)
