@@ -19,7 +19,8 @@
  ## *i don't do roleplay* . ![03eaf3a8](https://github.com/starzirl/starzirl/assets/151113072/fadcd02e-ed51-4351-adda-f8eaf7af0bd8) 
 
 
-![0debb812](https://github.com/starzirl/starzirl/assets/151113072/dca022e9-2154-4181-8eca-fd9a7acbdbb8)
+![f70033c86bd3838c79a57ffab2cd00e1](https://github.com/starzirl/starzirl/assets/151113072/da9442fd-73ff-47f3-ad99-bd91c2fbec47)
+
 
  
 
