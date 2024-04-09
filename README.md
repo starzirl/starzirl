@@ -1,16 +1,21 @@
-### Hi there 👋
+### . . . . status ![e8a8727a_original](https://github.com/starzirl/starzirl/assets/151113072/735733ac-f501-446b-bff4-ad57e4234996)
 
-<!--
-**starzirl/starzirl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+- **online** .. *don't use it*
+- **looking for chat** .. *don't use it*
+- **looking for roleplay** .. *don't use it*
+- **away** .. *int* . *iwc*
+- **busy** .. *dniuf* . *dniuc*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  i don't do roleplay .
+
+
+
+
+
+
+
+
+
+
+
