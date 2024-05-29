@@ -1,5 +1,6 @@
 
-## ![affb2485f0ec5942325125856888ad0f](https://github.com/starzirl/starzirl/assets/151113072/14b4518f-9cf0-40e2-9054-34827ab8a462)
+## ![ece04f7271ca0b1cf8ae0be7cfc3727f](https://github.com/starzirl/starzirl/assets/151113072/7fe6cfda-021b-4fe3-9126-56ea95c5667e)
+
 
 
 ### . . . . status ![47e44551](https://github.com/starzirl/starzirl/assets/151113072/bf0e513b-f8cd-4975-b14e-22997e7fc2ca)
@@ -19,7 +20,8 @@
  ## *i don't do roleplay* . ![03eaf3a8](https://github.com/starzirl/starzirl/assets/151113072/fadcd02e-ed51-4351-adda-f8eaf7af0bd8) 
 
 
-![f70033c86bd3838c79a57ffab2cd00e1](https://github.com/starzirl/starzirl/assets/151113072/da9442fd-73ff-47f3-ad99-bd91c2fbec47)
+![74099330cb5a3314c6616066dd4ba124](https://github.com/starzirl/starzirl/assets/151113072/b9513ae1-5a51-4103-9457-fa261843f8e2)
+
 
 
  
